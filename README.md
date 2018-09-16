@@ -1,2 +1,0 @@
-# BIODATA
-for resume
